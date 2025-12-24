@@ -6,7 +6,7 @@
 
 ஊர் : வேப்பம்பாளையம், மேட்டுக்கடை - 638112
 
-வேலை : IFOCUS SYSTEC PRIVATE LIMITED  
+வேலை : Vectrous.ai Private Limited  
 
 சம்பளம் : Non-Disclosure / 1A5E0
 
